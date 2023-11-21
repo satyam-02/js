@@ -1,1 +1,1 @@
-everything# js
+JS Killed !!
